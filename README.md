@@ -24,4 +24,4 @@ Drink some, lithegulp some, drink some; roughly 5-10 sec separation
 
 on tea prep:
 
-Drip onto cup of water. Allow 3 minutes passive brewing (no stirring). Then stir every 1-3 minutes with table fork.
+Drip onto cup of water. Allow 3 minutes passive brewing (no stirring). Then stir every 1-3 minutes with table fork. Maybe 2-3 stirs.
