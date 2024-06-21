@@ -21,3 +21,7 @@ Fenugreek can be taken at 9 AM; after eating, as a tea. Not certain as to powder
 ### Additional Dosing Instructions
 
 Drink some, lithegulp some, drink some; roughly 5-10 sec separation
+
+on tea prep:
+
+Drip onto cup of water. Allow 3 minutes passive brewing (no stirring). Then stir every 1-3 minutes with table fork.
