@@ -1,3 +1,5 @@
+# Disclaimer: unknown side effects. Best recommended as rehab support.
+
 github.com/aqxiy/lithegulp
 
 github.com/aqxiy/tirthed
